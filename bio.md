@@ -1,0 +1,2 @@
+## BIO.MD
+My name is Elisha Amos. I was born in Ghana, West africa and moved to the united states in 2004. My background is in Fraud investigation and Fraud prevention. Work as a Fraud prevention analyst and assisted in fraud investigation for about 10years of my career. I am switching fields into programming with hopes to inculperate the knowledge with the fraud piece along the line
